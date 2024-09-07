@@ -1,4 +1,4 @@
-## Um mergulho no mundo das Medicinas Indígenas Ancestrais** 
+## Um mergulho no mundo das Medicinas Indígenas Ancestrais
 
 ###  **O que é essa aplicação?**
 
