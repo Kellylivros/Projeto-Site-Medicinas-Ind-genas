@@ -2,7 +2,7 @@
 
 ###  **O que é essa aplicação?**
 
-Essa aplicação te leva em uma jornada fascinante pelo universo das medicinas indígenas! ‍♂️✨ Aqui, você pode pesquisar por diversas plantas sagradas e substâncias utilizadas em rituais e práticas medicinais tradicionais. 
+Essa aplicação te leva em uma jornada fascinante pelo universo das medicinas indígenas! Aqui, você pode pesquisar por diversas plantas sagradas e substâncias utilizadas em rituais e práticas medicinais tradicionais. 
 
 **Como funciona?**
 
